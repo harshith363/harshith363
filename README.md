@@ -9,7 +9,7 @@
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/harshithvk/](https://www.linkedin.com/in/harshithvk/)
 
-- ⚡ Fun fact **I have no idea what I am doing**
+- ⚡ Fun fact **I have no idea what I am doing but as a student, I am enjoying every second of learning**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
